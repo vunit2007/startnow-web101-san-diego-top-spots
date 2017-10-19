@@ -1,0 +1,1 @@
+This guide will help you find the top spots in San Diego to visit. 
